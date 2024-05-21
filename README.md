@@ -11,7 +11,7 @@ After studying Business Studies at Sixth Form I was very keen to become Self-Emp
 As time goes by my skill set is upgrading and I find (at the moment) the Front End Developing very fascinating.
 
 ## Contact
-[LinkedIn](www.linkedin.com/in/jazmin-richards-4604689b) 
+View my [LinkedIn](www.linkedin.com/in/jazmin-richards-4604689b) page. 
 
 <!--
 **JazIR09/JazIR09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. --!>
